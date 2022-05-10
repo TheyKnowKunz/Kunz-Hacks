@@ -34,8 +34,7 @@ New dino box will not currently register on the spam open boxes. Nothing bad wil
 
 FORKING IS NOW PERMITED!
 
-Forking must be aproved by me and only me!!!! if you fork this repository without permision you will be banned from this repository!!! Reach out at grahamsnipes1@gmail.com I will try to respond withen the hour, Thanks:)
-
+Forking Is Allowed But All i ask is for you too Follow my Youtube (KunzBtw) :)
 Thanks, Park-Sauce, GS
 
 
