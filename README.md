@@ -35,7 +35,7 @@ New dino box will not currently register on the spam open boxes. Nothing bad wil
 FORKING IS NOW PERMITED!
 
 Forking Is Allowed But All i ask is for you too Follow my Youtube (KunzBtw) :)
-Thanks, Park-Sauce, GS
+Thanks
 
 
 
@@ -50,18 +50,12 @@ Updates come at least 5 times per week. NEVER ON WEEKENDS (sometimes sunday nigh
 
 
 
-FAILURE TO READ AND UNDERSTAND TERMS AND CONDITION MAY RESULT IN 1 MONTH BAN ON BLOOKET
-
-
-NEVER DISTRIBUTE CODE WITHOUT GIVING CREDIT TO THIS SOURCE!!!
 
 
 
 
 
-We will both respond withen the hour
 
-Other user's codes will get you banned
 
 
 
@@ -71,4 +65,5 @@ Please always check Readme.MD document
 
 
 
-Thanks, Gsnipes1blookethacks, Park-Sauce
+Thanks,KunzBtw
+( Inspo - Park-Sauce, GS )
